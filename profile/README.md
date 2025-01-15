@@ -2,7 +2,7 @@
 
 Donald Trump, a name synonymous with political and media headlines, has often found himself at the center of controversy. The latest debate revolves around the so-called "hash case," a situation that has left many wondering about the potential legal implications for the former president. Questions such as "Can Donald Trump go to jail for the hash case?" and "Is Trump guilty in the hash case?" have sparked discussions across the nation. In this article, we will explore the allegations, legal considerations, and what this means for Trump’s political future.
 
-## Understanding the Hash Case [Realtime Update From New York Court](www.gamepodcasts.com)
+## Understanding the Hash Case [Realtime Update From New York Court](https://gamepodcasts.com)
 
 The "hash case" involves allegations of misconduct related to Trump's business dealings or personal conduct. While the specifics of the case remain murky, it appears to involve accusations of financial irregularities or potential misuse of power. The case has drawn significant media attention, with proponents arguing that Trump’s actions warrant criminal charges.
 
@@ -32,14 +32,14 @@ The question of whether Donald Trump can go to jail for the hash case or if he i
 
 For now, the outcome remains uncertain, and any conclusions must await further developments in the case.
 
-## [Updated Information](www.gamepodcasts.com)
-## [Update On Verdict](www.gamepodcasts.com)
-## [Update From Court](www.gamepodcasts.com)
-## [Information From New York](www.gamepodcasts.com)
-## [Update From NYC](www.gamepodcasts.com)
-## [NCC News](www.gamepodcasts.com)
-## [Hash Case Viral Adult Video](www.gamepodcasts.com)
-## [Pardon For Donald Trump](gamepodcasts.com)
+## [Updated Information](https://gamepodcasts.com)
+## [Update On Verdict](https://gamepodcasts.com)
+## [Update From Court](https://gamepodcasts.com)
+## [Information From New York](https://gamepodcasts.com)
+## [Update From NYC](https://gamepodcasts.com)
+## [NCC News](https://gamepodcasts.com)
+## [Hash Case Viral Adult Video](https://gamepodcasts.com)
+## [Pardon For Donald Trump](https://gamepodcasts.com)
 
 #Donald Trump hash case
 #Trump guilty hash case
